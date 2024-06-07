@@ -12,8 +12,7 @@ Work in progress
 
 **"Weather Shocks and Delegation of Authority in Land Decision Making: Evidence from Malawi"**
 
- * <font size="-0.5">Working paper upon request.</font>
-</p> 
+ * <font size="-0.5">Working paper upon request. </font>
 
 -----
 <br>
